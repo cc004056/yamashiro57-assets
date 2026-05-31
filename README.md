@@ -1,0 +1,1 @@
+# yamashiro57-assets
