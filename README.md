@@ -1,1 +1,1 @@
-# yamashiro57-assets
+# yamashiro57-classreunion
